@@ -4,3 +4,8 @@ you know this chase to money i'm starting to recognize the pull it does on you. 
 
 i dont know man.  this thing is too much for me.  why?  cause i'm doing dumb stuff.   i dont know man.  its just like this. i wish i could find a better way forward but i dont even know what we just did...
 
+sometimes i can't tell what's going on in the world cause i'm stuck with this shark's burden.  you actually  need this for ptsd????  i dont think so.  but it is???  oh well another reason to almost feel good about yourself.
+
+i dont know man.  i think i should give you the treatment.  you know the one.  when i come up with it eventually lol.  smashing glass anyone?? i just might do it but dont worry about it i  probably will not lol...
+
+so yeah...  i am bored and tired and weeded and fearing and shit.  that y'all bring the old ones back get it??? no? i dont know either.  i wonder how much monees in damages i do and i do not get a piece of it.  i just wondered where the gratefulness of my actions brought about any sort of problem.  i am drained lol.  i just using this boost to get something funny done.  like this problem we have here.  i think i'm immersed already.  boom boom boom.  goes the clouds.. i wonder sometimes, that my efforts were in vain and nothing i did really mattered so i asked you why you don't release so i can go back to playing games...  you know the games make your head tired for once.  you came you fried, i'm damaged.  what can be proven? all of the above. and i still dont do this shit to you.  and another day you say its my fault this happened.
