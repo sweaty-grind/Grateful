@@ -23,3 +23,11 @@ yup.  we just tell ourselves they are basking in the results of 5 years of fryin
 so things were what they became.  and we got off on the wrong foot i think you may just be a chicken.  dont want to get exposed or something...  i'm thinking about getting a claim against doing this to me...
 
 you think i'm joking though right??? i sure hope we are on the same foot here.  cause making a mess would destroy my perfect record.  lololol...  it can be run like this to an extent.  i think the shark is real?? i hope he is cause like that was my main job.  taking care of your bitches...  joking right??  how come you don't enjoy getting screwed over by curiosity???  why do it to me if you won't do it to yourselves.  and none of this mattered cause you won't pay me for it.  you are too slow for my tastes i would request an exit here from you cause you caused this mess and i don't want to form compliance with you.  just imagine...  in 3 months time we could have done something great or something.  or i was gonna leave here anyways  lol...
+
+i feel the way you handled me produces a result in me that i cannot comprehend.  you know? i dont.  i've had too much memory loss to do stupid stuff.  so things just stalemated and i told you it was the best time.  in the future conflict also known as practice has to fire on live targets.  we give them all social credit points.  just not over doing it though.  you know???  so thats what i figured what this stupid incessant power hungry asshole you guys are.  you know. you jump up there in space and shit and at a point reality sinks in that you are gonna get screwed really badly.  again...
+
+blah blah something dangerous blah blah.
+
+you know, i don't think you really understand what is going on. i bought you more time to do it right.  this is shared goals?? i feel like knowing you guys as solo party makes it weird.  can only proceed with talent to lead the bunch...  somethings like this?? no?
+
+drank my first monster already.  should i grab the second one???
