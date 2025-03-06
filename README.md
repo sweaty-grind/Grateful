@@ -43,3 +43,5 @@ so this is the future and we fixed all the old problems and stupidly we never ha
 you know, i don't think you really understand what is going on. i bought you more time to do it right.  this is shared goals?? i feel like knowing you guys as solo party makes it weird.  can only proceed with talent to lead the bunch...  somethings like this?? no?
 
 drank my first monster already.  should i grab the second one???
+
+wtf.
