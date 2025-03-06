@@ -28,6 +28,18 @@ i feel the way you handled me produces a result in me that i cannot comprehend. 
 
 blah blah something dangerous blah blah.
 
+you know i am currently as to what loss this thing dude.  my mind is jelly.
+
+on the second one...
+
+i dont know what to type lol...  oh wait its ginseng land time...
+
+so i wondered how much of a game you could squeeze into one end huh???  i mean there were too many vectors in here to say things won't hit each other while the float out in space.  just build mother of all bombs nukes...
+
+so you know what i figured out??  that you like me.  cause you play tough guy...  sir, i thought it goes differently and i still hold this view.  you did it so badly that the nation was bankrupt.  somethings like this...
+
+so this is the future and we fixed all the old problems and stupidly we never had a new one cause the leaders say we can't handle it.  when this whole time anything of worth was used up.  nobody here was lame.  i spend my days in this insanity and i figured that i could just do everything while crazy and normal world will still go around.  somethings like this i forgot.
+
 you know, i don't think you really understand what is going on. i bought you more time to do it right.  this is shared goals?? i feel like knowing you guys as solo party makes it weird.  can only proceed with talent to lead the bunch...  somethings like this?? no?
 
 drank my first monster already.  should i grab the second one???
